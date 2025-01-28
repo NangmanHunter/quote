@@ -1,0 +1,8 @@
+- A bad workman blames his tools.
+- A smart man makes a mistake, learns from it, and never makes that mistake again. But a wise man finds a smart man and learns from him howto avoid the mistake altogether.
+- Cranberries are sorted for ripenss by bouncing them; a fully ripened cranberry can be dribbled like a basketball.
+- Let no one who loves be unhappy, even love unreturned has its rainbow.
+- Make the most of the best and the least of the worst. -Robert Louis Stevenson
+- No one is useless in this world who lightens the burdens of another. -Charles Dickens
+- Think big, live simply.
+- Unless you are willing to experience new things, you’ll never realize your full potential. -Wim Hof
