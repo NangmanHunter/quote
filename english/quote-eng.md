@@ -6,3 +6,5 @@
 - No one is useless in this world who lightens the burdens of another. -Charles Dickens
 - Think big, live simply.
 - Unless you are willing to experience new things, you’ll never realize your full potential. -Wim Hof
+- When the going gets weird, the weird turn pro. -Hunter S. Thompson
+- 
